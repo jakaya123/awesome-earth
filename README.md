@@ -39,6 +39,9 @@ Air pollution causes [200,000 early deaths each year in the USA](http://news.mit
 - [Eden Reforestation Projects](https://edenprojects.org/) - 🌎 Eden Reforestation projects reduces extreme poverty and restores healthy forests by employing local villagers to plant millions of trees every year.
 - [Treedom](https://www.treedom.net/) - Treedom lets you buy or gift a real tree, where somebody will plant it for you and follow it online. 
 - [Tree-Nation](https://tree-nation.com/projects) - 🌎 Discover the projects where you can start planting now.
+-[Jewish National Fund](https://www.jnf.org/) - It gives opportunities for you to contribute in reforestation in order to make a green world.🌎
+-[Tree people](https://www.treepeople.org/) - It gives opportunities for you to contribute in reforestation in order to make a better world for everyone.
+
 
 ## Sustainable Lifestyle
 
